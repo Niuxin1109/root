@@ -1,1 +1,1 @@
-k.jnbawelkjdabk;jk.jnbawelkjdabk;j
+nam:"阿瓦达"
